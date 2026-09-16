@@ -61,8 +61,8 @@ Time Series • Machine Learning • Financial Analytics
 
 ## 📫 Let's Connect
 
-[LinkedIn](YOUR_LINKEDIN)
+[LinkedIn](www.linkedin.com/in/ravi940)
 [Portfolio](YOUR_PORTFOLIO)
-[Email](YOUR_EMAIL)
+[Email](ravidav23@gmail.com)
 
 > Turning Data → Insights → Decisions
